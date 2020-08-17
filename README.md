@@ -15,4 +15,8 @@ This game is different. It will be playing with your mind, while you are playing
 
 This game can be played alone or with another person. Settings can be saved and shared via the URL. The game is run entirely in the browser using Javascript, nothing will be saved on the server. You can even download the game, modify it and run it locally without internet connection.
 
-More details will be posted as we go along. This is just a hobby project so it will probably take a long time. Stay tuned ;)
+I hope that this game will also serve as an inspiration for the awesome JOI creators and dommes on the internet to create next-level masturbation games for the JOI and femdom communities. :)
+
+More details will be posted as we go along. This is just a hobby project so it will probably take a long time.
+
+Stay tuned ;)
